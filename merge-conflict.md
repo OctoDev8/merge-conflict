@@ -2,8 +2,8 @@
 
 ## nothing wrong
 
-Something something
+Boredom boredom boredom
 
-Something something something
+La la la la la la la la
 
-Maybe maybe maybe?
+Yeah yeah yeah yeah yeah
